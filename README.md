@@ -1,1 +1,1 @@
-# Riverbank-Student-s-Union
+# Riverbank-Students-Union
